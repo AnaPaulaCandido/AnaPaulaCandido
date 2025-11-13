@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AnaPaulaCandido
-- 🌱 I’m currently learning a Programar
+- 🌱 I’m currently learning Programar
 - 💞️ I’m looking to collaborate on Com o desenvolvimento da empresa
 - 📫 How to reach me email: astrosanapaula@gmail.com ou Celular: 85-99734-8242
 
